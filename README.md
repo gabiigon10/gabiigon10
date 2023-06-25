@@ -6,4 +6,3 @@ Meu nome é Gabriele Gonçalves
 - 📫 Como chegar até mim: bom, não chegue👍
 - 🎈  ela/dela
 - ⚡ gosto muito de casos criminais
-
